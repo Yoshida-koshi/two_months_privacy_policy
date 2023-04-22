@@ -1,1 +1,0 @@
-# two_months_privacy_policy
